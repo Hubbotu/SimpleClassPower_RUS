@@ -1,0 +1,1 @@
+# SimpleClassPower_RUS
